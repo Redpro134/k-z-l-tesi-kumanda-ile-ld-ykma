@@ -1,0 +1,1 @@
+# k-z-l-tesi-kumanda-ile-ld-ykma
